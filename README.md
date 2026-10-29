@@ -1,4 +1,4 @@
-# AlphaValuate---Public-Repo---only-screenshots
+# AlphaValuate---Public-Repo---screenshots
 
 <img width="1164" height="649" alt="image" src="https://github.com/user-attachments/assets/a6178cd0-9da3-46aa-ad30-bd68b5c4826b" />
 
